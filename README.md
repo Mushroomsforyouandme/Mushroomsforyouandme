@@ -1,0 +1,10 @@
+- Hello, please call me Mushrooms or any other name I've told you I go by.
+
+My perfered pronouns are he/him
+
+ 
+ Ponytown:
+ 
+-Im not good at talking or interacting but will try my best, please come sit/cuddle with me though
+-anyone is welcome (especially MXTX skins)
+-IM VERY SORRY IF I END UP TYPING FOR SO LONG AND END UP NOT SAYING ANYTHING 
