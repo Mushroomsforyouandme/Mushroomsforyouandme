@@ -11,4 +11,4 @@ My perfered pronouns are he/him
 
 
 
-fandoms: MXTX, Wuwa, SCP
+fandoms: MXTX, Wuwa, SCP, fate series
