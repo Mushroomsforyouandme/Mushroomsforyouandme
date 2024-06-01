@@ -2,6 +2,8 @@
 
 My perfered pronouns are he/him
 
+![IMG_6585](https://github.com/Mushroomsforyouandme/Mushroomsforyouandme/assets/170828201/2dd9b6d0-8b41-423a-884a-123e3b119296)
+
  
  Ponytown:
  
