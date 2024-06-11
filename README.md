@@ -2,6 +2,8 @@
 
 My perfered pronouns are he/him
 
+Eastern Asian
+
 ➳➳➳➳➳┄┄※┄┄➳➳➳➳➳
 
  
