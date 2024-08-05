@@ -18,4 +18,4 @@ Eastern Asian
 fandoms: MXTX, Wuwa, SCP, fate series, racheldrawsthis games, POKEMONNNNN, ALNST, TMC, Vita Carnis, Vocaloid
 
 
-DNI: Proshipper, a fetishizer of things that shouldn't be fetishized, racist, homophobic, transphobic.
+DNI: Proshipper, a fetishizer of things that shouldn't be fetishized, racist, homophobic, transphobic, etc.
