@@ -15,7 +15,7 @@ Eastern Asian
 -I don't handle pressure/anger well, I'm sorry if I do something wrong, please tell me and I'll change.
 
 
-fandoms: MXTX, Wuwa, SCP, fate series, racheldrawsthis games, POKEMONNNNN, ALNST, TMC, Vita Carnis, Vocaloid
+fandoms: MXTX, Wuwa, SCP, fate series, racheldrawsthis games, POKEMON!!, ALNST, TMC, Vita Carnis, Vocaloid, 8:11, 
 
 
 DNI: Proshipper, a fetishizer of things that shouldn't be fetishized, racist, homophobic, transphobic, etc.
