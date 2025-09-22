@@ -1,9 +1,8 @@
-hai guys more info in my strawpage
+More info in strawpage.
+
+doodles appreciated
 
 
+--------------------------------------------------------
 
--send me doodles please
-
-
--Docks/GTC lurker
 
