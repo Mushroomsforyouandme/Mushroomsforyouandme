@@ -11,6 +11,10 @@ doodles appreciated
 
 
 --------------------------------------------------------
+"As you are now, so once was I
+As I am now, soon you shall be -
+Prepare yourself to follow me."
+
+
 
 <img src="https://external-media.spacehey.net/media/sWqiDAaA3rPPhDBQ2OTdUXohzxFi6PUPpKUGTLJ8EWGE=/https://64.media.tumblr.com/b3c4e27cc0853d02b886b452440c6b90/1b776ac6eac6cf39-b4/s250x400/c7a2dc261ffc7209e883358c5249316bbaaf008d.pnj"/>
-<img src="https://64.media.tumblr.com/e2c4d695a43d8e1349d8c5bade7ba1dd/d944be928cb02a04-4d/s400x600/e9479b39d27a42aeff24adb97b10aa1d6ea74b28.gifv"/>
