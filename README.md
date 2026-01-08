@@ -6,7 +6,8 @@ More info in strawpage.
 
 doodles appreciated
 
-<img src="<img https://limbuscompany.wiki.gg/images/thumb/Beastly_Instinct_Panic.png/96px-Beastly_Instinct_Panic.png?d2b94a/>
+<img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/ba55cc4c-2c9a-4871-bb3b-c05a6824d471" />
+
 
 He/him, mostly in GTCs or with my friend
 
