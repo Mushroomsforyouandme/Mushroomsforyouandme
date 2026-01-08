@@ -7,7 +7,8 @@ More info in strawpage.
 doodles appreciated
 
 
-<img src="https://64.media.tumblr.com/093332d799fdbc334c641c3508af2c46/747279e2979b2fe4-2d/s100x200/fe1546c7d03c635d1c114f0d3c01254280e38a8c.pnj"/>
+<img <img width="655" height="981" alt="image" src="https://github.com/user-attachments/assets/18235589-0314-4fa6-8e1a-bdc25da9fa6b" />
+/>
 
 He/him, mostly in GTCs or with my friend
 
