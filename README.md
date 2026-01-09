@@ -12,11 +12,14 @@ doodles appreciated
 
 He/him, mostly in GTCs or with my friend
 
-<img src="https://external-media.spacehey.net/media/sWqiDAaA3rPPhDBQ2OTdUXohzxFi6PUPpKUGTLJ8EWGE=/https://64.media.tumblr.com/b3c4e27cc0853d02b886b452440c6b90/1b776ac6eac6cf39-b4/s250x400/c7a2dc261ffc7209e883358c5249316bbaaf008d.pnj"/>
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/e50e8876-6c33-4fd7-9a80-fa9b18a4cf5d" />
+
 
 i block freely
 
-blockaholic
+Stamp by @ fleuvan on tumblr
+
+
 
 --------------------------------------------------------
 "As you are now, so once was I
